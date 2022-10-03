@@ -1,1 +1,0 @@
-# 2005qxd2005.github.io
